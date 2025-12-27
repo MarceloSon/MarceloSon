@@ -13,7 +13,7 @@
  <br>
 <br>
 
-### Para conteúdo sobre Jogos, Música e Matemática me segue nas redes abaixo!
+### For more content about Games, Music, Math and more, follow me in my socials below!
 
 
 <div> 
